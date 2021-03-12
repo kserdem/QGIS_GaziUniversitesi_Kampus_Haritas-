@@ -1,0 +1,1 @@
+# QGIS_GaziUniversitesi_Kampus_Haritas-
